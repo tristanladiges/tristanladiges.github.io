@@ -1,1 +1,0 @@
-# tristanladiges.github.io
